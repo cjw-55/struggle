@@ -1,0 +1,2 @@
+# struggle
+奋斗
